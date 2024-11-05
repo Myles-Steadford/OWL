@@ -7,7 +7,7 @@ https://github.com/user-attachments/assets/19fd963c-53d1-4115-8793-7f5f641924b9
 https://github.com/user-attachments/assets/310259b5-6e9b-4658-8fc5-8520b89028b7
 https://github.com/user-attachments/assets/4a3d608d-3189-439d-bf0a-ce9828ecad9a
 https://github.com/user-attachments/assets/d9f1d438-8e98-4ffe-b3ba-2f302d2d2862
-Uploading Coinbase
 https://github.com/user-attachments/assets/f29e4ae6-7cd1-4797-bec5-4ffc562593f3
-_TwitterPost(1x1).mp4…
+https://github.com/user-attachments/assets/01d2c46a-d341-4793-b95d-6e598f0376b5
+https://github.com/user-attachments/assets/fc519fc5-d1f9-40e2-932e-80d30121aeba
 
